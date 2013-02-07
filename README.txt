@@ -1,3 +1,3 @@
 David Belzer
 
-New York Yankees
+NY Yankees
